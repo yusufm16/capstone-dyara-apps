@@ -1,2 +1,2 @@
-# capstone-dyara-apps
-ini projek kami
+# CAPSTONE BANGKIT PROJECT 2022
+
